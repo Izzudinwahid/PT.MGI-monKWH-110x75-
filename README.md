@@ -1,0 +1,1 @@
+# PT.MGI-monKWH-110x75-
